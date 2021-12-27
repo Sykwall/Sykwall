@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Sykwall
+- 👀 I’m interested in doing my job
+- 🌱 I’m currently learning to do my job
+- 📫 How to reach me : corentin.durey@hotmail.com
